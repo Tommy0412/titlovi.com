@@ -1,0 +1,1 @@
+jebi se Nikola
