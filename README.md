@@ -1,1 +1,1 @@
-jebi se Nikola
+lopatanje :D
